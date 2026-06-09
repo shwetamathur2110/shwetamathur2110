@@ -85,7 +85,7 @@ I specialize in:
 ## 📫 Connect With Me
 
 - Gmail: shwetamathur2110@gmail.com
-- LinkedIn: [https://www.linkedin.com/in/shweta-mathur-61ba066b/]https://www.linkedin.com/in/shweta-mathur-61ba066b/
+- LinkedIn: https://www.linkedin.com/in/shweta-mathur-61ba066b/
 
 ---
 
