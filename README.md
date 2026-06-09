@@ -84,8 +84,8 @@ I specialize in:
 
 ## 📫 Connect With Me
 
-- GitHub: https://github.com/shwetamathur2110
-- LinkedIn: *(add your LinkedIn link here)*
+- Gmail: shwetamathur2110@gmail.com
+- LinkedIn: [https://www.linkedin.com/in/shweta-mathur-61ba066b/]https://www.linkedin.com/in/shweta-mathur-61ba066b/
 
 ---
 
